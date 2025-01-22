@@ -1,2 +1,1 @@
-budsayaporn mint
-wongwanmano
+sd
